@@ -1,2 +1,2 @@
-# M_Pashaev
+# M_Pashayev
 Hi there 👋
